@@ -17,8 +17,8 @@ _Bất cứ ai cũng có thể rời đi._
 _Hãy tôn trọng những gì mình đang có._
 
 # Liên lạc: 
-````
+
 [Facebook](https://www.facebook.com/vtnlord)
 
 [Zalo](https://zalo.me/0353415885)
-```
+
