@@ -22,3 +22,5 @@ _Hãy tôn trọng những gì mình đang có._
 
 [Zalo](https://zalo.me/0353415885)
 
+[Discord](https://discordapp.com/users/694068328720760833/)
+
