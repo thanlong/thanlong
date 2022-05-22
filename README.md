@@ -18,7 +18,7 @@ _Hãy tôn trọng những gì mình đang có._
 
 # Liên lạc: 
 
-[Facebook](https://www.facebook.com/vtnlord)
+[Facebook](https://www.facebook.com/vtn.dragonlord/)
 
 [Zalo](https://zalo.me/0353415885)
 
